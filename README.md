@@ -51,3 +51,6 @@
 ![ezgif-2-6189335993](https://user-images.githubusercontent.com/87400909/182803440-dc213fd9-9594-4487-a8b0-78ebb8a61899.gif)
 
 ## Presentation
+
+![CV_오프라인-1조](https://user-images.githubusercontent.com/87400909/182988156-8bcfc09a-a6e7-4618-a7dc-144d6f3000f6.gif)
+
